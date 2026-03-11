@@ -1,0 +1,1 @@
+Fire Lake Labs is a lab in the same way that the AMC Gremlin was a car.  Cool name, but there's not much in the way of quality.  But really this is just a place where I'll be showing off some of my projects.
